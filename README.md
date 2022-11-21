@@ -5,7 +5,7 @@
  
  ### 🌟 〢 READ 
   
- - Pick a topic in question and read it. / Join [Discord Server](https://discord.gg/skycheats)
+ - Pick a topic in question and read it. / Join [Discord Server](https://discord.gg/DfNCWhFmbv)
  - let's go 
  - **Every product has a warranty. If banned, we are happy to refund.**
  
@@ -40,7 +40,7 @@
 
 - Mastercard & Visa (Used to buy gift Cards.)
 
-#### IF you have another form of payment, please contact Discord for more information. [DISCORD](https://discord.gg/skycheats)
+#### IF you have another form of payment, please contact Discord for more information. [DISCORD](https://discord.gg/DfNCWhFmbv)
 ---
 
 ## <a id="Project_Private"></a>🔴 〢 What is Private Cheat
